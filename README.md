@@ -1,1 +1,0 @@
-# arquivos_secretos_4_anfitriaow84y3g
